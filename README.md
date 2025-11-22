@@ -1,4 +1,4 @@
-- 👋 Hi, My handle is @7arantula
+- 👋 Hi, My handle is Arya
 - 💞️ I like Video games
 - 📫 I’m working on something awesome and big, will update soon
 
