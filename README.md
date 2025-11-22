@@ -1,4 +1,4 @@
-- 👋 Hi, My handle is Arya
+- 👋 Hi,
 - 💞️ I like Video games
 - 📫 I’m working on something awesome and big, will update soon
 
